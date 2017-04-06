@@ -1,0 +1,1 @@
+# bmemotion_szenzorkartya
